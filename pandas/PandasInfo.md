@@ -7,7 +7,7 @@
 
 ## Tiny Panda Appreciation Page
 
-Pandas are round, fluffy, and objectively adorable.
+they are great for emotional support. also they are kinda spherical
 
 ### Featured Pandas
 
