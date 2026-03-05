@@ -5,6 +5,9 @@
 
 ---
 
+## Tiny Panda Appreciation Page
+
+they are great for emotional support. also they are kinda spherical
 
 ### Featured Pandas
 
